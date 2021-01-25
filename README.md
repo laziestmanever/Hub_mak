@@ -14,3 +14,7 @@ https://laziestmanever.github.io/Ping/
 
 ## My Dummy Resume (Note : details on the resume are not correct ,those are filled only for UI purpose)
 https://laziestmanever.github.io/Maks-resume/
+C:\Users\Arunkumar\Desktop\Cart Up AI\figma XD
+
+## Original Resume
+https://cutt.ly/oj1Sf5n
